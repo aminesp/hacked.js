@@ -1,0 +1,2 @@
+# hacked.js
+qsdqsddqsd
